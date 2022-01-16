@@ -1,4 +1,4 @@
-### Hi, I’m Nessie! (not the lake monster) 🦕 <br>
+### Hi, I’m Nessie! (not the loch monster) 🦕 <br>
 👀 I’m interested in web/app development, writing and creative technology <br>
 🌱 I’m currently learning JavaScript <br>
 💞️ If you're looking to collaborate, reach out to me! <br>
