@@ -1,6 +1,6 @@
 ### Hi, I’m Nessie! (not the loch monster) 🦕 <br>
 👀 I’m interested in web/app development, writing and creative technology <br>
-🌱 I’m currently learning to JAM <br>
+🌱 I’m currently learning how to JAM while listening to subjectively great music <br>
 💞️ If you're looking to collaborate, reach out to me! <br>
 📫 How to reach me - email! <br>
 
